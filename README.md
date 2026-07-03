@@ -1,1 +1,1 @@
-# Quantitative-Methods-2 2024-2025
+# Quantitative-Methods-2 
